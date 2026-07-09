@@ -1,1 +1,1 @@
-# George-Lepidas
+# Georgeos-Lepidas
